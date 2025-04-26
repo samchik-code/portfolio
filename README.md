@@ -1,2 +1,2 @@
 # portfolio
-i will update this portflolio every week
+i will update this portfolio every week
